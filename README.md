@@ -1,1 +1,1 @@
-# Gemi-Stabilizat-r
+# Gemi-Stabilizator
